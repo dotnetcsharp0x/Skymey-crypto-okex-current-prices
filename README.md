@@ -1,0 +1,1 @@
+# Skymey-crypto-okex-current-prices
